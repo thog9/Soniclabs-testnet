@@ -1,5 +1,5 @@
 # Soniclabs BOT
-BOT Click: [SONICLABS](https://testnet.soniclabs.com/)
+BOT Click: [SONICLABS](https://airdrop.soniclabs.com/?ref=lt6q8j)
 
 ## Features:
 
